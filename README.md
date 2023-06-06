@@ -6,4 +6,4 @@ Jebać Bobka
 
 Jebać zimę starego
 
-Wachowski zjedz snicersa bo gwiazdorzysz
+Wachowski kocham cię
