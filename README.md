@@ -4,4 +4,4 @@ Jebać Sieja
 
 Jebać Bobka
 
-Jebać zimę
+Jebać zimę starego
